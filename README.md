@@ -1,5 +1,8 @@
 💫 Hi 👋, I'm Tuhin Chanda
 A passionate Instrumentation Engineer || Data Analatics Engineer || from India
+Skills:- SQL, PYTHON , POWER BI , ADVANCE EXCEL , DATA CLEANING ,DATA VISUALIZATION 
+Hobbies :- Drawing, Football 
+Interest:- Robotics , Sensors , Instruments
 
 Email Me 👉 ✉️ tuhinchanda875@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
